@@ -49,7 +49,7 @@ This tool is ideal for individuals and organizations aiming to:
 ---
 
 ## Contact
-For any questions or feedback, feel free to reach out to **Ankita Pandey** at (insert your preferred contact information).
+For any questions or feedback, feel free to reach out to **Ankita Pandey at pankita9090@gmail.com .
 
 ---
 
